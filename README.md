@@ -7,7 +7,7 @@
 <sub> Funfact #1: I know the lore of MCSM, and Admin and The White Pumpkin aren't from Forsaken/dir. </sub>
 
 ## General information about me!
-Hello there, my name is Noir, but you can also call me Nix or any nickname you may have.
+Hello there, my name is Noir, but you can also call me Nyx or any nickname you may have.
 
 I was born on 4/16/2008, use this to figure out my age as I am uncomfortable stating it myself, I will state that I'm an adult, 
 I've also been told by a psychologist
