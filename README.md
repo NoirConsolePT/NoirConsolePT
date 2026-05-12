@@ -21,22 +21,21 @@ I am a voice actor and impressionist, but I am currently known for nothing, I'm 
 I tend to be shy or awkward when first meeting new people or I can just be the most silliest person alive, If I make a mistake or am making you uncomfortable **PLEASE FOR THE LOVE OF EVERYTHING LET ME KNOW** I'm usually oblivious to that.
 
 
-# Ship related information.
+## Ship related information.
 
 I do not care about ships as long as they aren't a proship or a dark ship, and usually whenever I spot a proshipper or a darkshipper they get blocked immediately, but I know three ships I'm pretty much attached to which are Spectreblood, 1xNoli (Myth) and Glorypizza.
 
-# Other information.
+## Other information.
 
 I kin a lot of character's some more than others, and whenever I'm being that character I tend to act in character if someone is speaking with me, this is mainly due to the fact I'm used to being spoken with in character.
 
 
-# System Related
+## System Related
 
 I support systems, and will always try to comfort them as me myself am questioning if I am one, and I am working on it IRL with others.
 
 
-## THIS README ALWAYS GETS EDITED MAKE SURE TO COME BACK LATER.
-
+# MORE INFORMATION ON MY STRAWPAGE.
 
 
 
