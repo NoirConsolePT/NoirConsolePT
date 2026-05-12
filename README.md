@@ -9,8 +9,7 @@
 ## General information about me!
 Hello there, my name is Noir, but you can also call me Nyx or any nickname you may have.
 
-I was born on 4/16/2008, use this to figure out my age as I am uncomfortable stating it myself, I will state that I'm an adult, 
-I've also been told by a psychologist
+I was born on 4/16/2008, use this to figure out my age as I am uncomfortable stating it myself, I will state that I'm an adult, so if you feel discomfort interacting with adults then for your own sake, don't interact with me.
 
 I am a voice actor and impressionist, but I am currently known for nothing, I'm also in too many fandom's that I've lost count, trust me it's crazy.
 
