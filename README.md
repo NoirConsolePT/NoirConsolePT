@@ -34,6 +34,11 @@ I kin a lot of character's some more than others, and whenever I'm being that ch
 I support systems, and will always try to comfort them as me myself am questioning if I am one, and I am working on it IRL with others.
 
 
+## Be Advised.
+
+There are times where I'll suddenly go into a certain emotion or feeling, or I'll stress about something that is currently happening, already happened or could happen, my brain makes me look at situations and see the negative, never the positive, usually during these moments my brain absolutely refuses to accept comfort even when I need it, and it has to be forced onto me, if you don't want to deal with that, then just don't try, let me figure it out on my own.
+
+
 # MORE INFORMATION ON MY STRAWPAGE.
 
 
