@@ -39,6 +39,12 @@ I support systems, and will always try to comfort them as me myself am questioni
 There are times where I'll suddenly go into a certain emotion or feeling, or I'll stress about something that is currently happening, already happened or could happen, my brain makes me look at situations and see the negative, never the positive, usually during these moments my brain absolutely refuses to accept comfort even when I need it, and it has to be forced onto me, if you don't want to deal with that, then just don't try, let me figure it out on my own.
 
 
+## How to know if I'm angry/upset with you.
+
+I go awkward when your around, and when you try to talk/type to me I just go either dead silent or give you blank answers or the answer's will be short and quick, although most times I type short and quickly, when I want to unfriend someone on Ponytown but I don't want it to affect them, I'll go offline mode and unfriend them then, If you are someone who I've unfriended, goodbye and have a good life, just know I don't hate you, I just felt uncomfortable around you for reasons I may not disclose here.
+
+
+
 # MORE INFORMATION ON MY STRAWPAGE.
 
 
