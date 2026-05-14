@@ -22,7 +22,7 @@ I tend to be shy or awkward when first meeting new people or I can just be the m
 
 ## Ship related information.
 
-I do not care about ships as long as they aren't a proship or a dark ship, and usually whenever I spot a proshipper or a darkshipper they get blocked immediately, but I know three ships I'm pretty much attached to which are Spectreblood, 1xNoli (Myth) and Glorypizza.
+I do not care about ships as long as they aren't a proship or a dark ship, and usually whenever I spot a proshipper or a darkshipper they get blocked immediately, but I know three ships I'm pretty much attached to which are Spectreblood, 1xNoli (Myth) and Glorypizza, as stated before **I DO NOT CARE ABOUT SOME SHIPS** even though my Mafioso pony is called "#1 DoubleFedora Hater."
 
 ## Other information.
 
@@ -41,7 +41,7 @@ There are times where I'll suddenly go into a certain emotion or feeling, or I'l
 
 ## How to know if I'm angry/upset with you.
 
-I go awkward when your around, and when you try to talk/type to me I just go either dead silent or give you blank answers or the answer's will be short and quick, although most times I type short and quickly, and I'll be awkward and often **PRETEND** to go AFK to pervent myself from hurting them.
+I go awkward when your around, and when you try to talk/type to me I just go either dead silent or give you blank answers or the answer's will be short and quick, although most times I type short and quickly, and I'll be awkward and often **PRETEND** to go AFK to pervent myself from hurting you.
 
 ## How to know if I am unfriending someone.
 
