@@ -41,7 +41,11 @@ There are times where I'll suddenly go into a certain emotion or feeling, or I'l
 
 ## How to know if I'm angry/upset with you.
 
-I go awkward when your around, and when you try to talk/type to me I just go either dead silent or give you blank answers or the answer's will be short and quick, although most times I type short and quickly, when I want to unfriend someone on Ponytown but I don't want it to affect them, I'll go offline mode and unfriend them then, If you are someone who I've unfriended, goodbye and have a good life, just know I don't hate you, I just felt uncomfortable around you for reasons I may not disclose here.
+I go awkward when your around, and when you try to talk/type to me I just go either dead silent or give you blank answers or the answer's will be short and quick, although most times I type short and quickly, and I'll be awkward and often **PRETEND** to go AFK to pervent myself from hurting them.
+
+## How to know if I am unfriending someone.
+
+when I want to unfriend someone on Ponytown I always don't want it to affect them, I'll go offline mode and unfriend them then, but sometimes I may just pretend to be AFK and then do as previously stated, offline mode, then unfriend. If you are someone who I've unfriended, goodbye and have a good life, just know I don't hate you, I just felt uncomfortable around you for reasons I may not disclose here, if your someone who was unfriended for a **REASON** or you hurt me just know, you probably won't see me again, goodbye.
 
 
 
