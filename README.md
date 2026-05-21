@@ -31,7 +31,8 @@ I kin a lot of character's some more than others, and whenever I'm being that ch
 
 ## System Related
 
-I support systems, and will always try to comfort them as me myself am questioning if I am one, and I am working on it IRL with others.
+I support any systems, DID & OSDD, I do not support Endo systems, nor do I tolerate them, as someone who is questioning if I myself am a system
+I will support systems forever, and I do my research aswell.
 
 
 ## Be Advised.
@@ -46,6 +47,16 @@ I go awkward when your around, and when you try to talk/type to me I just go eit
 ## How to know if I am unfriending someone.
 
 when I want to unfriend someone on Ponytown I always don't want it to affect them, I'll go offline mode and unfriend them then, but sometimes I may just pretend to be AFK and then do as previously stated, offline mode, then unfriend. If you are someone who I've unfriended, goodbye and have a good life, just know I don't hate you, I just felt uncomfortable around you for reasons I may not disclose here, if your someone who was unfriended for a **REASON** or you hurt me just know, you probably won't see me again, goodbye.
+
+
+## Comfort from Noir/Nyx.
+
+Hey, you there reading this Github, are you having a tough time?, are those negative thoughts hitting really bad, just remember you are beautiful and perfect the way you are, and to not let anyone change your own opinion on yourself, but if your feeling in a really bad mood to the point you just want to end it all, please get into contact with an someone you trust or even call your local suicide hotline, just know you are not a burden, you are just as important and special, and please don't be tough on yourself, find some activities or things that can help you, don't stress yourself, remember that your mental health is just as important, and you have friends and loved ones who care about you and don't want to see you go, and as much as you might put others before yourself please remember you are important too, you are loved, you are cared for.
+
+if you or anyone you know is experiencing suicidal thoughts please call your local suicide hotline, or go see a professional for help.
+
+Thank you take care of yourself and have a fantastic timezone.
+-NoirConsoleVA
 
 
 
