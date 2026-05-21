@@ -1,8 +1,8 @@
 # Welcome to my Github
 
-<sub> My dumbass writing this Github ReadME v </sub>
+<sub> This is me guys I swear !! v </sub>
 
-![Banner Image](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExcjdncXNmMjMzdWZxMHpxZGwycDk1djdpbmsxdXQyMzJ1cHNheWw3NiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tlF7dy3EtsCH5BMBjO/giphy.gif)
+![Banner Image](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjdkOHl2cWNpc215cmIyZTNkN3p2eHdiMTR1b2s2M2hkbmdyZGU0biZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/JoZW2ZE86IV4ieFNbS/giphy.gif)
 
 <sub> Funfact #1: I know the lore of MCSM, and Admin and The White Pumpkin aren't from Forsaken/dir. </sub>
 
