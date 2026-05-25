@@ -13,7 +13,7 @@ I was born on 4/16/2008, use this to figure out my age as I am uncomfortable sta
 
 I am a voice impressionist, but I am currently known for nothing, I'm also in too many fandom's that I've lost count, trust me it's crazy.
 
-<sub> I am also questioning if I am a system, and I'm getting that worked on with people IRL. </sub>
+<sub> I am a questioning system, and I'm getting that stuff worked on with people IRL. </sub>
 
 ## More information.
 
