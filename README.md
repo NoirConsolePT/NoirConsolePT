@@ -15,7 +15,7 @@ I am a voice impressionist, but I am currently known for nothing, I'm also in to
 
 <sub> I am also questioning if I am a system, and I'm getting that worked on with people IRL. </sub>
 
-## General information.
+## More information.
 
 I tend to be shy or awkward when first meeting new people or I can just be the most silliest person alive, If I make a mistake or am making you uncomfortable **PLEASE FOR THE LOVE OF EVERYTHING LET ME KNOW** I'm usually oblivious to that.
 
