@@ -2,7 +2,7 @@
 
 <sub> This is me guys I swear !! v </sub>
 
-![Banner Image](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjdkOHl2cWNpc215cmIyZTNkN3p2eHdiMTR1b2s2M2hkbmdyZGU0biZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/JoZW2ZE86IV4ieFNbS/giphy.gif)
+![Banner Image](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExaXcwdmh3N2tqNTE3MzZtaG9hcmpvYXhuMnNoZGs4aHlyNXQ0cnYwMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ZJWN9vQjsUZf5zxQWF/giphy.gif)
 
 <sub> Funfact: I do not give a fuck :D . </sub>
 
