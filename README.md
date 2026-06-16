@@ -1,8 +1,7 @@
 # Welcome to my Github
 
-<sub> This is me guys I swear !! v </sub>
 
-![Banner Image](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExaXcwdmh3N2tqNTE3MzZtaG9hcmpvYXhuMnNoZGs4aHlyNXQ0cnYwMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ZJWN9vQjsUZf5zxQWF/giphy.gif)
+![Banner Image](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExaGk5eWx4bGt3dWFwd3R1bW5meG9nN2hka204bXphZXc3ZW15cG9nNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/7LvNO2XoCLOzm/giphy.gif)
 
 <sub> Funfact: I do not give a fuck :D . </sub>
 
