@@ -59,7 +59,7 @@ Thank you take care of yourself and have a fantastic timezone.
 
 
 
-# MORE INFORMATION ON MY STRAWPAGE.
+# MORE INFORMATION ON MY STRAWPAGE & PRONOUNS.CC PAGE.
 
 
 
