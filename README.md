@@ -6,32 +6,23 @@
 <sub> Funfact: I do not give a fuck :D . </sub>
 
 ## General information about me!
-Hello there, my name is Noir, but you can also call me Nyx or any nickname you may have.
+Most my informations on **Strawpage**, so I'll make this short.
 
-I was born on 4/16/2008, use this to figure out my age as I am uncomfortable stating it myself, I will state that I'm an adult, so if you feel discomfort interacting with adults then for your own sake, don't interact with me.
+The names Noir, but you can call me Nyx, Azure, or any nickname you give.
 
-I am a voice impressionist, but I am currently known for nothing, I'm also in too many fandom's that I've lost count, trust me it's crazy.
+I was born on 4/16/2008, therefor I am an adult, if your uncomfortable with adults then kindly DNI.
+
+I am a voice impressionist, but I'm in too many fandom's that I've lost count, trust me it's crazy.
 
 <sub> I am a questioning system, and I'm getting that stuff worked on with people IRL. </sub>
 
-## More information.
-
-I tend to be shy or awkward when first meeting new people or I can just be the most silliest person alive, If I make a mistake or am making you uncomfortable **PLEASE FOR THE LOVE OF EVERYTHING LET ME KNOW** I'm usually oblivious to that.
-
-
 ## Ship related information.
 
-I do not care about ships as long as they aren't a proship or a dark ship, and usually whenever I spot a proshipper or a darkshipper they get blocked immediately, but I know three ships I'm pretty much attached to which are Spectreblood, 1xNoli (Myth) and Glorypizza, as stated before **I DO NOT CARE ABOUT SOME SHIPS** even though my Mafioso pony is called "#1 DoubleFedora Hater."
+I do not care about ships as long as they aren't a proship or a dark ship, and usually whenever I spot a proshipper or a darkshipper they get blocked immediately, but I know three ships I'm pretty much attached to which are Spectreblood and Glorypizza, as stated before **I DO NOT CARE ABOUT SOME SHIPS** even though my Mafioso pony is called "#1 DoubleFedora Hater."
 
 ## Other information.
 
 I kin a lot of character's some more than others, and whenever I'm being that character I tend to act in character if someone is speaking with me, this is mainly due to the fact I'm used to being spoken with in character.
-
-
-## System Related
-
-I support any systems, DID & OSDD, I do not support Endo systems, nor do I tolerate them, as someone who is questioning if I myself am a system
-I will support systems forever, and I do my research aswell.
 
 
 ## Be Advised.
